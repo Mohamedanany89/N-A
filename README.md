@@ -1,0 +1,2 @@
+# N-A
+Crypto earn
